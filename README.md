@@ -1,0 +1,2 @@
+# Muxddos
+Rymux kontol babi
